@@ -16,7 +16,7 @@
 
 - 💬 Ask me about **C,C++,Java,Python.**
 
-- 📫 How to reach me **nithinkatt281@gmail.com**
+- 📫 How to reach me **nithinkatta281@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1nt0eq6wgaVHbTd3JtKa3U0K1RC4sanjY/view?usp=sharing](https://drive.google.com/file/d/1nt0eq6wgaVHbTd3JtKa3U0K1RC4sanjY/view?usp=sharing)
 
